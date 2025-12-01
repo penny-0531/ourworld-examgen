@@ -1,1 +1,1 @@
-# ourworld-examgen
+# Solo Teacher COO
